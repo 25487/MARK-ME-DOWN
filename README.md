@@ -14,4 +14,4 @@
 
 Dit is een geweldige video (zo voel ik me elke keer wanneer ik klaar ben met werken):https://www.youtube.com/watch?v=6-SpJMxlrDw
 
-En hier is een mooie foto
+En dit is hoe ik mij voel na een lange schooldag: https://www.youtube.com/watch?v=r5_NvFTfAWc
